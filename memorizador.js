@@ -1,0 +1,1 @@
+me tengo que acordar de muchas cosas durante el dia , para que de esa forma el dia sea mas productivo.
